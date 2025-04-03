@@ -2,6 +2,8 @@
 <p>Are you searching for a working promo code to boost your trading experience? Look no further! The Quotex promo code <strong>“DEALA”</strong> is verified and available today, offering a generous <strong>+50% deposit bonus</strong> for new users. This code is your ticket to maximizing your trading potential and starting your journey with more capital.</p>
 <a href="https://smartthriftfinder.com/quotex-kpseo">Click here to sign-up directly on the official site</a>
 
+
+
 <h2>Promo Code Overview</h2>
     <table>
     <thead>
@@ -23,6 +25,7 @@
 </table>
 
 <p>By using the code <strong>"DEALA"</strong>, you'll instantly add extra funds to your trading balance, boosting your opportunities for profit right from the start. Don’t let this limited-time offer slip by!</p>
+<a href="https://broker-qx.pro/sign-up/fast/?lid=1109154"><img src="https://static.quotex.io/files/10_en/468_60.jpg"></a>
 <h2>How to Use the Quotex Promo Code</h2>
     <p>To claim your <strong>+50% deposit bonus</strong>, simply follow these easy steps:</p>
 <ol>
