@@ -78,4 +78,10 @@
 <h2>What is Quotex?</h2>
 <p>Quotex is a cutting-edge online trading platform that lets users trade a wide variety of financial assets such as forex, cryptocurrencies, stocks, and commodities. With its user-friendly interface, advanced charting tools, and fast trade execution, it’s perfect for both beginners and experienced traders alike.</p>
 <p>One of the standout features of Quotex is its attractive bonuses, which allow users to enhance their investments. By using a promo code, new traders can receive additional funds with their first deposit, giving them a head start on maximizing their potential returns. With the <strong>DEALA</strong> code, you’ll start your trading journey with more capital, boosting your trading possibilities right from the beginning.</p>
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
 
