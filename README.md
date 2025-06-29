@@ -19,7 +19,7 @@
             <td><a href="https://smartthriftfinder.com/quotex-kpseo">DEALA</a></td>
             <td>50% Deposit Bonus</td>
             <td>✅ Verified and Active in April 2025</td>
-            <td>💵 50 USD</td>
+            <td>💵 150 USD</td>
         </tr>
     </tbody>
 </table>
@@ -29,10 +29,10 @@
 <h2>How to Use the Quotex Promo Code</h2>
     <p>To claim your <strong>+50% deposit bonus</strong>, simply follow these easy steps:</p>
 <ol>
-        <li><strong><a href="https://qxbroker.com/ru/sign-up">Sign Up on Quotex</a></strong> – If you don’t have an account yet, head over to the official Quotex website and complete the registration process. It’s quick, and you’ll be ready to start trading in no time.</li>
-        <li><strong>Make a Deposit</strong> – To qualify for the bonus, deposit a minimum of $50. The more you deposit, the larger your bonus, providing you with more capital to trade.</li>
+        <li><strong><a href="https://smartthriftfinder.com/quotex-kpseo">Sign Up on Quotex</a></strong> – If you don’t have an account yet, head over to the official Quotex website and complete the registration process. It’s quick, and you’ll be ready to start trading in no time.</li>
+        <li><strong>Make a Deposit</strong> – To qualify for the bonus, deposit a minimum of $150. The more you deposit, the larger your bonus, providing you with more capital to trade.</li>
         <li><strong>Enter Promo Code "DEALA"</strong> – When making your deposit, you’ll be prompted to enter a promo code. Type in <strong>"DEALA"</strong> and apply it. This will ensure you receive an automatic <strong>+50% bonus</strong> on your deposit.</li>
-        <li><strong>Enjoy Your Bonus</strong> – Once the code is applied, your deposit will be increased by 50%, giving you additional funds for trading. For example, if you deposit $50, you’ll get an extra $25 added to your account.</li>
+        <li><strong>Enjoy Your Bonus</strong> – Once the code is applied, your deposit will be increased by 50%, giving you additional funds for trading. For example, if you deposit $150, you’ll get an extra $25 added to your account.</li>
     </ol>
 <p>This simple process will instantly increase your balance, allowing you to start trading with more funds immediately.</p>
 
@@ -53,7 +53,7 @@
             <td><a href="https://smartthriftfinder.com/quotex-kpseo">DEALA</a></td>
             <td>50% Deposit Bonus</td>
             <td>✅ Verified and Active in March 2025</td>
-            <td>💵 50 USD</td>
+            <td>💵 150 USD</td>
         </tr>
     </tbody>
 </table>
